@@ -2,4 +2,10 @@
 
 <img width="540" height="361" alt="Image" src="https://github.com/user-attachments/assets/53542446-6d44-4707-abba-844d8df9015e" />
 
-also if you get a random ugly chiikawa drawing on ur strawpage thats probably me,,,,,
+
+
+also if you get a random ugly chiikawa drawing on ur strawpage thats probably me ok,,,,
+
+
+
+k bye 
